@@ -1,3 +1,3 @@
-# Chapter 4.2.04 - Regeneration Survival
+# Chapter 4.2.03 - Regeneration Survival
 
 *In Progress*
